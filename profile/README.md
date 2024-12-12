@@ -3,8 +3,8 @@
 ## 📖 Introduction
 
 In the ever-evolving landscape of visual novels, My Femboy Roommate emerges as a distinctive title that intertwines heartfelt storytelling with interactive gameplay. Developed by Nuteku, this game invites players into a world of friendship, self-discovery, and nuanced relationships. Available across multiple platforms—including Android, iOS, and PC—it offers a versatile gaming experience for a broad audience.
-## ⚓ Download
-# 👉🕹️ [My Femboy Roommate Full Game Download](https://apkbine.com/pt/my-femboy-roommate/) 😘
+## 👉🕹️ [My Femboy Roommate Full Game Download](https://apkbine.com/pt/my-femboy-roommate/) 😘
+
 ## 🕹️ Gameplay Overview
 
 Set in a cozy apartment shared with Robin, a shy yet endearing livestreamer, players step into the shoes of a protagonist embarking on a new chapter in a bustling city. The narrative unfolds through meaningful choices that influence the storyline's direction, leading to multiple unique endings. This choice-driven mechanic ensures that each playthrough offers a fresh perspective, encouraging players to explore various narrative paths.
@@ -58,3 +58,7 @@ To download the latest version of "My Femboy Roommate" for Android:
 ## 🏆 Conclusion
 
 "My Femboy Roommate" offers a unique blend of interactive storytelling, rich character development, and engaging gameplay mechanics. Its thoughtful exploration of relationships and identity, coupled with its artistic presentation, makes it a standout title in the visual novel genre. Whether you're seeking a heartfelt narrative or an interactive experience that values player choice, this game provides a memorable journey worth undertaking.
+
+[Homicipher New Game](https://github.com/Homicipher-game-android-mobile)
+
+[My Femboy Roommate FPR](https://github.com/myfemboy-roomateroomate)
